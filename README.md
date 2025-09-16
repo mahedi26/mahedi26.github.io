@@ -1,3 +1,3 @@
-# etasin16.github.io
+# mahedi26.github.io
 
-https://etasin16.github.io
+https://mahedi26.github.io
